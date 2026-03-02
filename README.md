@@ -2,15 +2,16 @@
 
 ![](https://files.catbox.moe/64anrj.webp) ![](https://files.catbox.moe/64anrj.webp)
 
-# About!
+" Who are you.. trying to fool..? "
 
-Hello Hello! :D
+# 
 
-I oiginally wrote this for Ponytown but im kinda using it as a a hub for my intro now so if something on here may not make sense that's probally why!
+github speedrun cause i really need to be able to have all my info in one place.. this might be a bit long so i'm sorry!
 
-Were an OSDD system that collectivly goes by CritterSpace/CritterCollective but people online know me as Sherbz, Critter, or Bug and IRL i'm known as Atlas
+also if you see anything spelled wrong no you don't.
 
-I prefer They/It pronouns but am also ok with He/Him/His
+( this gitgub is still VERY MUCH a work in progress.. )
+
 
 ![](https://files.catbox.moe/64anrj.webp) ![](https://files.catbox.moe/64anrj.webp)
 
