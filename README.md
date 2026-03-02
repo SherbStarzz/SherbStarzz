@@ -20,7 +20,9 @@ also if you see anything spelled wrong no you don't.
 ### About Me..
 
 You can calll me Sherbz/Critter/Bug or whatever avi/pony i'm are in (if i'm using a proxy please refer to me as that name)
+
 ask pronouns
+
 I am 18!
 
 ### Boundaies. .
