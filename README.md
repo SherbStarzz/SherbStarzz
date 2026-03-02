@@ -85,6 +85,12 @@ my discord status will usally have my respond times!
 
  - Agianst Fictionkins
 
+౨ৎ
+
+- Dream Supporters
+
+- Vivziepop Supporters
+
 ![](https://files.catbox.moe/sux45p.png) ![](https://files.catbox.moe/eoyrbq.png)
 
 
