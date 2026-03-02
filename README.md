@@ -19,7 +19,7 @@ also if you see anything spelled wrong no you don't.
 
 ### About Me..
 
-You can calll me Sherbz/Critter/Bug or whatever avi/pony i'm are in (if i'm using a proxy please refer to me as that name)
+You can calll me Sherbz/Critter/Bug or whatever avi/pony i'm  in (if i'm using a proxy or have a user box please refer to me as the name there)
 
 ask pronouns
 
