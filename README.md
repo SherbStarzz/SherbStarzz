@@ -17,11 +17,13 @@ also if you see anything spelled wrong no you don't.
 
 # BYI !
 
+## About Me..
+
+## Boundaies. .
+
+## TWs. .
 
 
-line 2
-
-line 3
 
 ![](https://files.catbox.moe/64anrj.webp) ![](https://files.catbox.moe/64anrj.webp)
 
