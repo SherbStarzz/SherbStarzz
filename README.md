@@ -19,36 +19,78 @@ also if you see anything spelled wrong no you don't.
 
 ### About Me..
 
-You can calll me Sherbz/Critter/Bug or whatever avi/pony i'm  in (if i'm using a proxy or have a user box please refer to me as the name there)
+Refer to me as Critter, Sherbz or whatever name is above my head if i'm using a proxy
 
-ask pronouns
+IRLS know and can use my actual name
 
-I am 18!
+౨ৎ
+
+- Ask Pronouns 
+
+(very changing..)
+
+- I am 18!
+
+- MST timezone!
+
+౨ৎ
+
+-comms/requests are currently: closed
+
 
 ### Boundaies. .
 
-- Do NOT flirt (that goes for everyone collectivly)
-- DO NOT make fun of my speech impedimen
+#### Touching
 
-### TWs. .
+- DNT/Do Not Touch; DO NOT TOUCH. sometimes i just don't want physical contact
 
+- DNTUC/Do Not Touch Unless Close; This usally means Im only ok with people on my friends list or partners touching me.
 
+if you dont see either of these above my head your ok to sit with me and/or C+H!
+
+- Have common sense, don't flirt with me in any way (unless your my partner.) I'm not intrested in any more relationships and hapilly taken!
+
+#### Friend Requests
+
+- Friend requests are 18+ with the 
+
+only exceptions are IRLS or people i'm SUPER DUPER close with
+
+- additionally.. I will only add you if ive gotten to know you pretty well or have known you for awhile.
+
+#### DMS
+
+- Dms are usally open and idm them
+
+please don't use my dms to vent, respectfully I'm not anyone therapist
+
+my discord status will usally have my respond times!
 
 ![](https://files.catbox.moe/64anrj.webp) ![](https://files.catbox.moe/64anrj.webp)
 
 # DNI !
 
-test
+- -15 and 24+ IWEC (Interact with extreme caution)
 
-line 2 
-line 3
+- Follow basic DNI.. no T.R.A.S.H
+
+(Transphobic, Racsist, Abelist, Sexist, Homophobic)
+
+
+- You use slurs you can't reclaim
+
+- Agisnt neopronouns and/or xenoidentites
+
+- Agianst Furrys/Therians/kemomomimis
+
+ - Agianst Fictionkins
 
 ![](https://files.catbox.moe/sux45p.png) ![](https://files.catbox.moe/eoyrbq.png)
 
 
 # Socials !
 
-[Atabook](https://sherbstarzz.atabook.org/?page=1)
+[ Sign My Atabook! ](https://sherbstarzz.atabook.org/?page=1)
 
 [Discord](https://discord.com/users/615659611550384130)
 
