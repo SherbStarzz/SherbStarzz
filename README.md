@@ -70,7 +70,7 @@ Line 3
 ![](https://64.media.tumblr.com/1aa4bb75d84e87ca00be9c847ccbfbba/31ec50e3915b4208-76/s100x200/c3c1aadcb7d623751296116b28ff4bf718cccb72.gifv)
 ![](https://64.media.tumblr.com/19370c5fd36125d293a0a061d7883256/31ec50e3915b4208-6f/s100x200/26907c74daa3bc23221c938ec38dedffe18c4908.gifv)
 
-![](![](https://64.media.tumblr.com/f3a8362751df6fd0a540bbc548ed15f9/ad9c440abe11984d-62/s250x400/22e37c38983eff314e09567fc18524cad96213d2.gifv))
+![](https://64.media.tumblr.com/f3a8362751df6fd0a540bbc548ed15f9/ad9c440abe11984d-62/s250x400/22e37c38983eff314e09567fc18524cad96213d2.gifv)
 ![](https://64.media.tumblr.com/b02e3012bef581bd0f538c5de7f258ab/562bc653002dd72e-3e/s250x400/8f33db0d494ebb2e243cb76b6752b9839742fcc7.gifv)
 ![](https://64.media.tumblr.com/c9b87094bf1ae26e55e152ee4885683b/562bc653002dd72e-1e/s250x400/f41a3f0de8f00700021675036ed64b917fc8164d.gifv)
 ![](https://64.media.tumblr.com/d46cd7650e1bc15edaabfe446d488ac3/562bc653002dd72e-a9/s250x400/b30a7c5696dafba0ceea132b272c01eba101b55f.gifv)
