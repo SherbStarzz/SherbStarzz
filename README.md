@@ -30,7 +30,6 @@ line 3
 test
 
 line 2 
-
 line 3
 
 ![](https://files.catbox.moe/sux45p.png) ![](https://files.catbox.moe/eoyrbq.png)
@@ -40,7 +39,7 @@ line 3
 
 test
 
-Line 2
+[Discord](https://discord.com/users/615659611550384130)
 
 Line 3
 
