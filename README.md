@@ -17,11 +17,11 @@ also if you see anything spelled wrong no you don't.
 
 # BYI !
 
-## About Me..
+### About Me..
 
-## Boundaies. .
+### Boundaies. .
 
-## TWs. .
+### TWs. .
 
 
 
